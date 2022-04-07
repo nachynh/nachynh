@@ -1,0 +1,3 @@
+- Hi, I’m @nachynh (Ilya Smirnov).
+- Programming is my hobby.
+- You can contact me from the Vkontakte social network. [/] vk.com/bldd17 [\\]
